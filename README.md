@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @LiilBoo
-- 👀 I’m interested in ... all languages listed on my bio & Beginner friendly Open-Source
-- 🌱 I’m currently learning ... whatever the hype is
-- 💞️ I’m looking to collaborate on ... beginner friendly Open-Source
+- Fuck you. yep. You've read that one right. Fuck you.
 - 📫 How to reach me ... you can't, don't ask
